@@ -1,7 +1,10 @@
 # DAY 1 after the Farewell
 
 ** Here I'm again with my tears :)
-** Do you know 'Happy tragedy' by Saint Asonia? I often associate it with me.
+
+I think I feel better and start to feel as previous me.
+
+Do you know 'Happy tragedy' by Saint Asonia? I often associate it with myself.
 Actually even 1 day didn't last after my farewell so I almost did nothing.
 I decided to write my main principles here which I usually try to remember in my tough moments.
 
@@ -21,4 +24,4 @@ I decided to write my main principles here which I usually try to remember in my
 14. All lives are important, no matter whom they belong to.
 
 I don't remember all of them, I think the list will get longer soon.
-The hardest principle is to remember the second one.
+The hardest principle is the second one.
